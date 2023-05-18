@@ -1,1 +1,0 @@
-# rajeshpaleti.github.io
